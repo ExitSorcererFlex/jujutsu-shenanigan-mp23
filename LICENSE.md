@@ -1,4 +1,4 @@
-
+Experience jujutsu shenanigans like never before with jujutsu shenanigans Script underground, the #1 Script. Includes no cooldown and auto-collect
 
 
 
